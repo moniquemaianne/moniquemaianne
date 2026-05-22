@@ -1,4 +1,4 @@
-# Hi! 🌷 🐝 🌱
+Hi! 🌷 🐝 🌱
 
 My name is Monique Maianne and I'm a PhD candidate at University of São Paulo, Brazil. 
 
